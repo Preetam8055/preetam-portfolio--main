@@ -1,1 +1,1 @@
-# sooraj-portfolio
+# preetam-portfolio
